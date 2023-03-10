@@ -1,6 +1,6 @@
-#All things Ethiopian test
-# My name is Tsedenia Biruk. 
-My bio will be about my culture. 
+# All things Ethiopian 
+My name is Tsedenia Biruk.My bio will be about my culture. 
+ 
 
 
 ## ETHIOPIAN FOOD 
