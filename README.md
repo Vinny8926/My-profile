@@ -1,6 +1,7 @@
 # All things Ethiopian 
 My name is Tsedenia Biruk.My bio will be about my culture.
 
+![alt text](image.jpg)
 
  
 ---
@@ -15,6 +16,7 @@ Popular Ethiopian dishes include injera, a spongy flatbread made with teff flour
 
 ## ETHIOPIAN DRESSES 
 Ethiopian dress varies greatly among the many different ethnic groups in Ethiopia. Generally, men wear colorful, loose-fitting garments and women often wear white or brightly colored dresses with a shawl or scarf draped over the shoulders. Traditional Ethiopian clothing often includes headscarves, turbans, and brightly colored sashes. Jewelry is commonly worn, and is seen as a sign of beauty and prosperity.
+
 
 ---
 ---
