@@ -26,6 +26,8 @@ Ethiopian dress varies greatly among the many different ethnic groups in Ethiopi
 Ethiopians celebrate many holidays throughout the year. The main holidays are Meskel, which marks the finding of the True Cross; Timkat, which celebrates the baptism of Jesus in the Jordan River; and Enkutatash, which marks the beginning of the Ethiopian new year on September 11. Other holidays include Genna, a traditional Christian holiday celebrated on January 7, and Meskal, a celebration of the Ethiopian Orthodox Church on September 26. 
 Additionally, Ethiopians celebrate non-religious holidays, such as Victory Day on May 5 and the International Labor Day on May 1. They also observe special days such as the Day of Love, which is celebrated on the second Saturday of August, and the Day of Peace and Friendship on the first Saturday of October.
 
+![alt text](Screenshot 2023-03-10 at 3.36.41 PM.png)
+
 ---
 ---
 
