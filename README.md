@@ -1,7 +1,7 @@
 # All things Ethiopian 
 My name is Tsedenia Biruk.My bio will be about my culture.
 
-![alt text](2022-02-03 16:12:46.782.heic)
+![alt text](
 
  
 ---
