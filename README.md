@@ -6,7 +6,7 @@ My name is Tsedenia Biruk.My bio will be about my culture.
 ---
 ---
 ## ETHIOPIAN FOOD 
-Popular Ethiopian dishes include injera, a spongy flatbread made with teff flour and often served with stews and salads, and wat, a spicy stew made with berbere spice, onions, garlic, and ginger. Other popular foods include tibs (meat or vegetables sautéed in oil, garlic, and spices) and shiro (a dish made with chickpeas, onions, and berbere). Vegetarians can enjoy shiro fit-fit (shiro with pieces of injera) and gomen (greens served with garlic, oil, and spices). Traditional Ethiopian drinks include tej (honey win)
+Popular Ethiopian dishes include injera, a spongy flatbread made with teff flour and often served with stews and salads, and wat, a spicy stew made with berbere spice, onions, garlic, and ginger. Other popular foods include tibs (meat or vegetables sautéed in oil, garlic, and spices) and shiro (a dish made with chickpeas, onions, and berbere). Vegetarians can enjoy shiro fit-fit (shiro with pieces of injera) and gomen (greens served with garlic, oil, and spices). Traditional Ethiopian drinks include tej (honey win).
 
 ![alt text](Screenshot 2023-03-09 at 10.13.51 PM.png)
 
@@ -26,5 +26,12 @@ Additionally, Ethiopians celebrate non-religious holidays, such as Victory Day o
 ---
 ---
 
+## MY JOURNETY IN YEARUP
+I remember my first day of the zoom room class as if it were yesterday. I was so nervous and excited as I entered the zoom meeting. I had butterflies in my stomach as I enterd the zoom. I had no idea what to expect.The first thing I noticed was the teachers. They were so friendly and welcoming. They made me feel at ease straight away. I was quickly introduced to other students in the class and we all got along really well.The classes were interesting and challenging. I was given the opportunity to try new things and learn new skills. The teachers were patient and understanding, and always encouraged us to do our best.
 
- 
+----
+----
+
+## MY Accomplishment
+My greatest accomplishment in life so far has been . After years of hard work, dedication and perseverance, I was able to accomplish my goal of obtaining a college degree. Although it was a long and sometimes difficult journey, I am proud to have achieved this milestone in my life.
+
