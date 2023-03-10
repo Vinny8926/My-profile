@@ -7,7 +7,7 @@ My name is Tsedenia Biruk.My bio will be about my culture.
 ---
 ## ETHIOPIAN FOOD 
 Popular Ethiopian dishes include injera, a spongy flatbread made with teff flour and often served with stews and salads, and wat, a spicy stew made with berbere spice, onions, garlic, and ginger. Other popular foods include tibs (meat or vegetables sautéed in oil, garlic, and spices) and shiro (a dish made with chickpeas, onions, and berbere). Vegetarians can enjoy shiro fit-fit (shiro with pieces of injera) and gomen (greens served with garlic, oil, and spices). Traditional Ethiopian drinks include tej (honey win)
-
+![alt text](image.jpg)
 ---
 ---
 
