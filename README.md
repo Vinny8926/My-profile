@@ -39,5 +39,5 @@ I remember my first day of the zoom room class as if it were yesterday. I was so
 ----
 
 ## MY Accomplishment
-My greatest accomplishment in life so far has been . After years of hard work, dedication and perseverance, I was able to accomplish my goal of obtaining a college degree. Although it was a long and sometimes difficult journey, I am proud to have achieved this milestone in my life.
+My greatest accomplishment in life so far has been . After years of hard work, dedication and perseverance, I was able to accomplish my goal of obtaining a to go back to school. Although it was a long and sometimes difficult journey, I am proud to have achieved this milestone in my life.
 
