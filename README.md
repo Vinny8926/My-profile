@@ -31,8 +31,9 @@ Additionally, Ethiopians celebrate non-religious holidays, such as Victory Day o
 
 ---
 ---
+![alt text](![yearup](https://user-images.githubusercontent.com/127261209/225440523-9325d12a-81c7-49c4-97f5-9f251a97b58d.jpg)
 
-## MY JOURNETY IN YEARUP
+## MY JOURNEY IN YEARUP
 I remember my first day of the zoom room class as if it were yesterday. I was so nervous and excited as I entered the zoom meeting. I had butterflies in my stomach as I enterd the zoom. I had no idea what to expect.The first thing I noticed was the teachers. They were so friendly and welcoming. They made me feel at ease straight away. I was quickly introduced to other students in the class and we all got along really well.The classes were interesting and challenging. I was given the opportunity to try new things and learn new skills. The teachers were patient and understanding, and always encouraged us to do our best.
 
 ----
