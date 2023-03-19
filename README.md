@@ -18,7 +18,7 @@ Popular Ethiopian dishes include injera, a spongy flatbread made with teff flour
 ## ETHIOPIAN DRESSES 
 Ethiopian dress varies greatly among the many different ethnic groups in Ethiopia. Generally, men wear colorful, loose-fitting garments and women often wear white or brightly colored dresses with a shawl or scarf draped over the shoulders. Traditional Ethiopian clothing often includes headscarves, turbans, and brightly colored sashes. Jewelry is commonly worn, and is seen as a sign of beauty and prosperity.
 
-![alt text](Screenshot 2023-03-10 at 3.51.08 PM.png)
+!(![Untitled](https://user-images.githubusercontent.com/127261209/226206283-6778ee9e-7696-4a53-ac48-720516056625.png)
 
 ---
 ---
@@ -32,15 +32,18 @@ Additionally, Ethiopians celebrate non-religious holidays, such as Victory Day o
 ---
 ---
 
-## MY JOURNETY IN YEARUP
-I remember my first day of the zoom room class as if it were yesterday. I was so nervous and excited as I entered the zoom meeting. I had butterflies in my stomach as I enterd the zoom. I had no idea what to expect.The first thing I noticed was the teachers. They were so friendly and welcoming. They made me feel at ease straight away. I was quickly introduced to other students in the class and we all got along really well.The classes were interesting and challenging. I was given the opportunity to try new things and learn new skills. The teachers were patient and understanding, and always encouraged us to do our best.
+## MY JOURNEY IN YEARUP
+(![yearup](https://user-images.githubusercontent.com/127261209/226205723-87df3ebd-37c0-4c99-b604-fb3b8b5df77e.jpg)
+I remember my first day of zoom class as if it were yesterday. I was so nervous and excited as I entered the zoom meeting. I had butterflies in my stomach as I enterd the zoom. I had no idea what to expect.The first thing I noticed was the teachers. They were so friendly and welcoming. They made me feel at ease straight away. I was quickly introduced to other students in the class and we all got along really well.The classes were interesting and challenging. I was given the opportunity to try new things and learn new skills. The teachers were patient and understanding, and always encouraged us to do our best.
 
 ----
 ----
 
-## MY Accomplishment
+## MY ACCOMPLISHMENTS
 My greatest accomplishment in life so far has been . After years of hard work, dedication and perseverance, I was able to accomplish my goal of obtaining a to go back to school. Although it was a long and sometimes difficult journey, I am proud to have achieved this milestone in my life.
 
+----
+----
 
 ## MY CONTACTS
 [Tsedenia](https://www.linkedin.com/in/tsedenia-biruk-744929268)
