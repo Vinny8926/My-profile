@@ -41,6 +41,14 @@ I remember my first day of the zoom room class as if it were yesterday. I was so
 ## MY Accomplishment
 My greatest accomplishment in life so far has been . After years of hard work, dedication and perseverance, I was able to accomplish my goal of obtaining a to go back to school. Although it was a long and sometimes difficult journey, I am proud to have achieved this milestone in my life.
 
+----
+----
+
+## MY ACADEMIC AWARDS
+![Certificate](https://user-images.githubusercontent.com/127261209/226206472-5fce7ec9-9791-4070-ab23-2c8a57c2ca32.jpg)
+
+----
+----
 
 ## MY CONTACTS
 [Tsedenia](https://www.linkedin.com/in/tsedenia-biruk-744929268)
